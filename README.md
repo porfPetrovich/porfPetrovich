@@ -1,2 +1,2 @@
 # Porfiry Petrovich
-Newish Bitcoin enthusiast.
+Newish Bitcoin enthusiast
